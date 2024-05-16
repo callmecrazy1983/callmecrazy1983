@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Josh
+- 👀 I’m interested in being the best version of me currently available
+- 🌱 I’m currently learning how to adult
+- ⚡ Fun fact: I got my first A+ certification from ABCD in 1999.  the Y2K fear was real.
